@@ -31,5 +31,5 @@ Este perfil é dedicado a documentar meu progresso, trabalhos acadêmicos e proj
 | Rede | Contato |
 | :--- | :--- |
 | **LinkedIn** | [(www.linkedin.com/in/italo-guilherme-2a249537b) |
-| **Currículo Lattes** | (https://wwws.cnpq.br/cvlattesweb/PKG_MENU.menu?f_cod=EA96E903495EC374886849B4CF5A505F) |
+| **Currículo Lattes** | (https://wwws.cnpq.br/cvlattesweb/PKG_MENU.menu?f_cod=31EC1480074E9CFFBF44352792A87EC8#) |
 | **Email Profissional** | (italoguilhermefrc@gmail.com) |
